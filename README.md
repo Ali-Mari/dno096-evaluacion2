@@ -1,1 +1,13 @@
 # dno096-evaluacion2
+![Autora](https://github.com/user-attachments/assets/62c5b0b7-1c17-44e2-9043-26b3dda764a1)
+![Cafeteria La Subida](https://github.com/user-attachments/assets/f8bc32e2-698c-42e2-9170-db3c8e154c1a)
+![Libro Encuentro Tipografos](https://github.com/user-attachments/assets/5f89b6f5-9d87-4f49-b775-9d7e97eab67a)
+![Museo MAC](https://github.com/user-attachments/assets/a60f2232-7575-4c85-9c4a-c02bdfdcea20)
+![Patron Cuis](https://github.com/user-attachments/assets/2e64838a-47fb-4102-b943-e5bc028eca3a)
+![Afiche Ready Player One](https://github.com/user-attachments/assets/eab2766b-786c-444a-be5c-51852ee4b891)
+![Don Pugote](https://github.com/user-attachments/assets/ce269569-cddc-4a97-88eb-ca3cba8a8aca)
+![Gamer Quest](https://github.com/user-attachments/assets/b1365b7f-f963-4e25-826c-d3546c3d693a)
+![Jinshu](https://github.com/user-attachments/assets/f730eb0e-f3e8-4759-8529-333cde528cf9)
+![Libro Material y Packaging](https://github.com/user-attachments/assets/e51931c8-af98-4d83-b9f7-48050107451a)
+![PEEK](https://github.com/user-attachments/assets/bc4a1657-7f47-4fcb-be2c-ac1ef642ccd6)
+![Sintomatologia del cancer pediatrico](https://github.com/user-attachments/assets/348a47c6-12e7-4fc3-8a46-35f4f4d6a764)
