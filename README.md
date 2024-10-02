@@ -13,3 +13,15 @@
 ![Afiche Ready Player One_11zon](https://github.com/user-attachments/assets/9a7752cb-3c32-4ec5-9418-7919c3d26042)
 ![foto yo-01](https://github.com/user-attachments/assets/032ba4bc-3188-4473-a917-24e832b16e6a)
 
+![Sintomatologia del cancer pediatrico 1_11zon](https://github.com/user-attachments/assets/1c6ffc14-ff0c-4190-aa76-6b9d64fe5fe3)
+![Afiche Ready Player One 2_11zon](https://github.com/user-attachments/assets/5639896a-6912-4996-872a-16db07562911)
+![Gamer Quest 1_11zon](https://github.com/user-attachments/assets/4c232917-f9ac-4f4a-9ce3-0e85f61b123b)
+![30 sin título_20221218155254](https://github.com/user-attachments/assets/f9c0067c-234e-449e-a9c5-f29ddd901302)
+![Jinshu 1_11zon](https://github.com/user-attachments/assets/c0c173f8-3db3-47fd-9680-1c2c244eb640)
+![Museo MAC_11zon](https://github.com/user-attachments/assets/262da7ec-4d0a-4908-85a8-aad3b6ecbd1a)
+![Patron Cuis 3_11zon](https://github.com/user-attachments/assets/c08876e1-5c73-4d52-a0be-f22bf0ced399)
+![Cafeteria La Subida 2](https://github.com/user-attachments/assets/dc01cc7a-44f0-454a-92f8-e33ad2e3209f)
+![WhatsApp Image 2023-12-19 at 19 01 55](https://github.com/user-attachments/assets/304471a8-ae3f-4a44-a3d9-1ec1662f02f8)
+![WhatsApp Image 2023-12-19 at 19 01 58](https://github.com/user-attachments/assets/6c06d40f-4f4d-4cd7-a849-8101cd7feafc)
+
+
