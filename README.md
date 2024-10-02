@@ -11,3 +11,4 @@
 ![Don Pugote_11zon](https://github.com/user-attachments/assets/fbb3a6da-ee61-41da-9d11-f391331b1f69)
 ![Cafeteria La Subida_11zon](https://github.com/user-attachments/assets/57eed712-4bef-47cd-ad40-815e660ae775)
 ![Afiche Ready Player One_11zon](https://github.com/user-attachments/assets/9a7752cb-3c32-4ec5-9418-7919c3d26042)
+![foto yo-01](https://github.com/user-attachments/assets/668e0918-fce3-4e67-afcd-a329416c1567)
